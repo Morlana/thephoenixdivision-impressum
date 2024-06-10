@@ -11,7 +11,7 @@ Dieses Impressum gilt auch für unsere Auftritte in den folgenden sozialen Medie
 ## Angaben gemäß § 5 TMG
 
 Online-Impressum.de <br>
-**Creator**: The Phoenix Division – Florian Weber & Justin <br>
+**Creator**: The Phoenix Division – Florian Weber & Justin Vollmer <br>
 Europaring 90 <br>
 53757 Sankt Augustin <br>
 Telefon: +49 1522 2397390 <br>
